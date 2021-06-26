@@ -1,0 +1,1 @@
+# OmoriShu.github.io
